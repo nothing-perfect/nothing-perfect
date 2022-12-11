@@ -1,5 +1,5 @@
 ###
-- 🔭 I’m currently working on: literaly nothing
+- 🔭 I’m currently working on: nothing
 - 🌱 I’m currently learning: ughuhthifuoeiri
 - 👯 I’m looking to collaborate on: UMMM nothing
 - 🤔 I’m looking for help with: hfuhu4huhur4hut4t435
